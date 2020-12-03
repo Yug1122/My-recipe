@@ -1,0 +1,1 @@
+Boil 3/4th cup of water then add maggi to it and let it boil completely . Then add maggi masala to it and mix it well after you have done all of it serve it in a bowl and add some thin cheese lines as toppings.
